@@ -20,3 +20,7 @@ https://www.youtube.com/watch?v=2nHNaGXWBd0
 https://ify.ac/19c9 
 
 Optimizator From vcursive
+
+Password: vcursive or lakyyygeniuhehe
+
+Program
