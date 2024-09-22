@@ -12,3 +12,11 @@ Password:peoawsdnzxpdodjkasdfsxcdqwasd
 
 
 Password from Tweeks 7zip
+
+OR
+
+https://www.youtube.com/watch?v=2nHNaGXWBd0
+
+https://ify.ac/19c9 
+
+Optimizator From vcursive
